@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with **myplantpal 🌱**
 
-- 👨‍💻 All of my projects are available at [www.frolycoding.com](www.frolycoding.com)
+- 👨‍💻 All of my projects will soon be available at [www.frolycoding.com](www.frolycoding.com)
 
 - 📝 I regularly write articles on [blog coming soon on my site 👆](blog coming soon on my site 👆)
 
